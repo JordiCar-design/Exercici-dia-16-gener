@@ -1,0 +1,1 @@
+# Exercici-dia-16-gener
